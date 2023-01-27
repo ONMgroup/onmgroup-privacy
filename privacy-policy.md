@@ -49,6 +49,4 @@ Contact Us
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.
 
-Contact Information:
-
-Email: onm.group.app@gmail.com
+Contact Information: Email: onm.group.app@gmail.com
